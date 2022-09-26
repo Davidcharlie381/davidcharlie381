@@ -9,4 +9,4 @@
 
 😄 Pronouns: Him/He.
 
-⚡️ Fun fact: Prolly a nerd.
+⚡️ Fun fact: A happy nerd. 🤓 
